@@ -1,2 +1,0 @@
-# JrIzzieH.github.io
-Hosting.
